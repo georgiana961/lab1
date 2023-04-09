@@ -1,0 +1,1 @@
+Tudor (Ilie) Georgiana, CIG, ID, III, Sisteme informatice de asistare a deciziilor (SIAD)
